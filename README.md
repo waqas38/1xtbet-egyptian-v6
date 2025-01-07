@@ -1,0 +1,1 @@
+# 1xtbet-egyptian-v6
